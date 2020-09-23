@@ -1,4 +1,4 @@
-!.[MY IMAGE](https://toppng.com/uploads/preview/app-icon-set-login-icon-comments-avatar-icon-11553436380yill0nchdm.png)
+![MY IMAGE](https://toppng.com/uploads/preview/app-icon-set-login-icon-comments-avatar-icon-11553436380yill0nchdm.png)
 # Talal Rizvi
 
 ***Address**: F-3 Jehangir Road, East Karachi, Pakistan*
