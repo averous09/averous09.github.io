@@ -1,3 +1,1 @@
 # Talal Rizvi
-
-## Objective
