@@ -1,4 +1,4 @@
-!.[MY IMAGE](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftoppng.com%2Fapp-icon-set-login-icon-comments-avatar-icon-PNG-free-PNG-Images_126250&psig=AOvVaw3GN-3n1BaDmt_d7hqrEvhs&ust=1600955288912000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPjsl5eo_-sCFQAAAAAdAAAAABAD)
+!.[MY IMAGE](https://toppng.com/uploads/preview/app-icon-set-login-icon-comments-avatar-icon-11553436380yill0nchdm.png)
 # Talal Rizvi
 
 ***Address**: F-3 Jehangir Road, East Karachi, Pakistan*
